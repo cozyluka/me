@@ -1,2 +1,1 @@
-# me
-social anxiety and introvert.
+idk how to do this so
